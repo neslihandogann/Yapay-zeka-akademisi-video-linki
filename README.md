@@ -1,0 +1,1 @@
+# Yapay-zeka-akademisi-video-linki
